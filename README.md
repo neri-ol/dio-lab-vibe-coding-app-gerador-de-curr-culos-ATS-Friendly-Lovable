@@ -1,0 +1,1 @@
+# dio-lab-vibe-coding-app-gerador-de-curr-culos-ATS-Friendly-Lovable
